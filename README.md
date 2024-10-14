@@ -1,1 +1,1 @@
-This is the Resume of Haokun Zhao.
+The file is Haokun Zhao Resume.
